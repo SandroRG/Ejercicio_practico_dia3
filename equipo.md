@@ -1,1 +1,1 @@
-"La simplicidad es la m xima sofisticaci¢n" 
+"La simplicidad es la mï¿½xima sofisticaciï¿½n" 
