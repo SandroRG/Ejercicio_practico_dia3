@@ -1,1 +1,1 @@
-"Hazlo simple, pero significativo" 
+"La simplicidad es la m�xima sofisticaci�n" 
